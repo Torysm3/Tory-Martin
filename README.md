@@ -9,3 +9,5 @@ I am a Computer Science major, diving deeper in learning how to code in various 
 
 Connect with me on Linkedin at www.linkedin.com/in/torysmartin
 
+All of my projects are for school. You are welcome to browse and leave comments. I am always eager for advise.
+
